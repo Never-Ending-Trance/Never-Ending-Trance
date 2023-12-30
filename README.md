@@ -22,8 +22,8 @@
 |                    How to reach me                      |
 |                                                         |
 |  Discord: tragicending00                                |
-|  Discord Server: https://discord.gg/Sxa745U3 (Valid     |
-|  2023-12-29 through 2024-01-05)                         |
+|  Discord Server: https://discord.gg/VaA89qSgyn          |
+|                                                         |
 |---------------------------------------------------------|
 
 
