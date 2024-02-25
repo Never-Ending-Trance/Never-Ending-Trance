@@ -8,5 +8,4 @@ I’m looking to collaborate on open-source projects and innovative research tha
 
 How to reach me
 
-Discord: tragicending00
-Discord Server: https://discord.gg/VaA89qSgyn
+Email: never-ending-trance@outlook.com
